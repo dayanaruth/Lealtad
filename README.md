@@ -37,7 +37,7 @@ ZGljY2lvbmFyaW9zc2g
 ![star1](https://github.com/user-attachments/assets/71e91d5f-df38-41fe-9434-216e89f5e2ae)
 
 
-![](https://github.com/user-attachments/assets/92ba1cf8-6dee-49c3-b6db-f01f2abfcce9)
+
 
 
 ![1ba602dbd8e1ce1e3dfa9a64f03ef81b](https://github.com/user-attachments/assets/d4a648c1-a0a0-4970-9a3e-25b17b8b0f20)
